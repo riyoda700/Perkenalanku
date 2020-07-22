@@ -1,4 +1,4 @@
-# Yo This Is Me YO CHeck This Out 
+# Yo This Is Me Yo Check This Out 
 
 # Nama                   : Alfian Nurditariyono
 # Tempat tanggal lahir   : Probolinggo, 15 Agustus 2003
