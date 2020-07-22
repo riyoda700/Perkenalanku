@@ -9,4 +9,3 @@
 # IG                     : @fitrozza__ 
 # Perusahaan Idaman	 : Ubiklan 		  
 ----------------------------------------------------------------
-# Foto terbaik yang ada :) 
