@@ -9,3 +9,4 @@
 # IG                     : @fitrozza__ 
 # Perusahaan Idaman	 : Ubiklan 		  
 ----------------------------------------------------------------
+![alt text](https://github.com/arifinbjn/Perkenalanku/blob/master/Arek Ganteng.JPG)
